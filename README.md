@@ -1,4 +1,5 @@
 - 👋 Hello my friend is ranusTeam41, developer of KinovRise Activator and member of TivinovDEv team
+- 👋 My website of KRA Project: [ranusTeam41](https://ranusteam41.github.io/ranusteam.github.io)
 - 👀 I enjoy creating projects involving bypass and computer tools.
 - 💞️ No wife yet
 - 📫 Contact me via TivinovDEv email: it may take a while but it is the most effective for me to receive your mail!
